@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Gerrit28.github.io/rsschool-cv/cv
